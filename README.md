@@ -1,1 +1,1 @@
-google is stupid
+google is stupid and dumb
